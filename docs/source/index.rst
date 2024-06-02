@@ -1,22 +1,188 @@
-Welcome to Lumache's documentation!
+J88
 ===================================
 
-**Lumache** (/lu'make/) is a Python library for cooks and food lovers
-that creates recipes mixing random ingredients.
-It pulls data from the `Open Food Facts database <https://world.openfoodfacts.org/>`_
-and offers a *simple* and *intuitive* API.
+`J88dl <https://j88.supply/dai-ly-j88/>`_ làm đại lý của nhà cái J88, hoa hồng cao lên tới 80%, đãi ngội siêu lớn nhiều phần quà hấp dẫn chi đại lý J88
 
-Check out the :doc:`usage` section for further information, including
-how to :ref:`installation` the project.
+Website: `https://j88.supply/dai-ly-j88/ <https://j88.supply/dai-ly-j88/>`_
 
-.. note::
+Email: j88dl@gmail.com"
 
-   This project is under active development.
-
-Contents
---------
-
-.. toctree::
-
-   usage
-   api
+`https://x.com/linkj88dl <https://x.com/linkj88dl>`_
+`https://www.pinterest.com/linkj88dl/ <https://www.pinterest.com/linkj88dl/>`_
+`https://vimeo.com/linkj88dl <https://vimeo.com/linkj88dl>`_
+`https://www.blogger.com/profile/02012751158467825572 <https://www.blogger.com/profile/02012751158467825572>`_
+`https://gravatar.com/linkj88dl <https://gravatar.com/linkj88dl>`_
+`https://www.tumblr.com/linkj88dl <https://www.tumblr.com/linkj88dl>`_
+`https://www.openstreetmap.org/user/linkj88dl <https://www.openstreetmap.org/user/linkj88dl>`_
+`https://profile.hatena.ne.jp/linkj88dl/profile <https://profile.hatena.ne.jp/linkj88dl/profile>`_
+`https://archive.org/details/@linkj88dl/ <https://archive.org/details/@linkj88dl/>`_
+`https://issuu.com/linkj88dl <https://issuu.com/linkj88dl>`_
+`https://linkj88dl.bandcamp.com/album/j88 <https://linkj88dl.bandcamp.com/album/j88>`_
+`https://disqus.com/by/linkj88dl/about/ <https://disqus.com/by/linkj88dl/about/>`_
+`https://about.me/linkj88dl <https://about.me/linkj88dl>`_
+`https://viktorschumacher467.systeme.io/ <https://viktorschumacher467.systeme.io/>`_
+`https://www.mixcloud.com/linkj88dl/ <https://www.mixcloud.com/linkj88dl/>`_
+`https://hub.docker.com/u/linkj88dl <https://hub.docker.com/u/linkj88dl>`_
+`https://500px.com/p/linkj88dl?view=photos <https://500px.com/p/linkj88dl?view=photos>`_
+`https://vws.vektor-inc.co.jp/forums/users/linkj88dl <https://vws.vektor-inc.co.jp/forums/users/linkj88dl>`_
+`https://www.producthunt.com/@linkj88dl <https://www.producthunt.com/@linkj88dl>`_
+`https://linkj88dl.gitbook.io/linkj88dl <https://linkj88dl.gitbook.io/linkj88dl>`_
+`https://www.zillow.com/profile/linkj88dl <https://www.zillow.com/profile/linkj88dl>`_
+`https://www.discogs.com/fr/user/linkj88dl <https://www.discogs.com/fr/user/linkj88dl>`_
+`https://www.reverbnation.com/artist/linkj88dl <https://www.reverbnation.com/artist/linkj88dl>`_
+`http://resurrection.bungie.org/forum/index.pl?profile=j88dl <http://resurrection.bungie.org/forum/index.pl?profile=j88dl>`_
+`https://public.tableau.com/app/profile/linkj88dl/vizzes <https://public.tableau.com/app/profile/linkj88dl/vizzes>`_
+`https://because-gus.com/forums/participants/j88dl/ <https://because-gus.com/forums/participants/j88dl/>`_
+`https://tvchrist.ning.com/profile/j88dl595 <https://tvchrist.ning.com/profile/j88dl595>`_
+`https://cdn.muvizu.com/Profile/j88dl/Latest <https://cdn.muvizu.com/Profile/j88dl/Latest>`_
+`https://www.credly.com/users/linkj88dl/badges <https://www.credly.com/users/linkj88dl/badges>`_
+`https://heylink.me/linkj88dl/ <https://heylink.me/linkj88dl/>`_
+`https://jsfiddle.net/linkj88dl/ntbskw2a/1/ <https://jsfiddle.net/linkj88dl/ntbskw2a/1/>`_
+`https://community.fabric.microsoft.com/t5/user/viewprofilepage/user-id/753336 <https://community.fabric.microsoft.com/t5/user/viewprofilepage/user-id/753336>`_
+`https://www.walkscore.com/people/186527050911/linkj88dl <https://www.walkscore.com/people/186527050911/linkj88dl>`_
+`https://forum.melanoma.org/user/j88dl/profile/ <https://forum.melanoma.org/user/j88dl/profile/>`_
+`https://wakelet.com/@linkj88dl <https://wakelet.com/@linkj88dl>`_
+`https://forum.acronis.com/it/user/665243 <https://forum.acronis.com/it/user/665243>`_
+`https://dreevoo.com/profile_info.php?pid=643931 <https://dreevoo.com/profile_info.php?pid=643931>`_
+`https://hashnode.com/@linkj88dl <https://hashnode.com/@linkj88dl>`_
+`https://anyflip.com/homepage/osxoo#About <https://anyflip.com/homepage/osxoo#About>`_
+`https://www.instapaper.com/p/linkj88dl <https://www.instapaper.com/p/linkj88dl>`_
+`https://www.beatstars.com/linkj88dl/about <https://www.beatstars.com/linkj88dl/about>`_
+`https://beacons.ai/linkj88dl <https://beacons.ai/linkj88dl>`_
+`https://chart-studio.plotly.com/~linkj88dl <https://chart-studio.plotly.com/~linkj88dl>`_
+`http://linkj88dl.minitokyo.net/ <http://linkj88dl.minitokyo.net/>`_
+`https://writexo.com/share/6g7102w <https://writexo.com/share/6g7102w>`_
+`https://pbase.com/linkj88dl/j88 <https://pbase.com/linkj88dl/j88>`_
+`https://linkr.bio/linkj88dl <https://linkr.bio/linkj88dl>`_
+`https://leetcode.com/u/linkj88dl/ <https://leetcode.com/u/linkj88dl/>`_
+`https://hackmd.io/@linkj88dl/linkj88dl <https://hackmd.io/@linkj88dl/linkj88dl>`_
+`https://www.elephantjournal.com/profile/linkj88dl/ <https://www.elephantjournal.com/profile/linkj88dl/>`_
+`https://dadazpharma.com/question/j88-2/ <https://dadazpharma.com/question/j88-2/>`_
+`https://pxhere.com/en/photographer-me/4273032 <https://pxhere.com/en/photographer-me/4273032>`_
+`https://starity.hu/profil/453299-linkj88dl/ <https://starity.hu/profil/453299-linkj88dl/>`_
+`https://www.kfz-betrieb.vogel.de/community/user/linkj88dl <https://www.kfz-betrieb.vogel.de/community/user/linkj88dl>`_
+`https://www.spigotmc.org/members/linkj88dl.2039242/ <https://www.spigotmc.org/members/linkj88dl.2039242/>`_
+`https://www.furaffinity.net/user/linkj88dl <https://www.furaffinity.net/user/linkj88dl>`_
+`https://play.eslgaming.com/player/myinfos/20142749/#description <https://play.eslgaming.com/player/myinfos/20142749/#description>`_
+`https://www.intensedebate.com/profiles/linkj88dl <https://www.intensedebate.com/profiles/linkj88dl>`_
+`https://www.niftygateway.com/@j88dl <https://www.niftygateway.com/@j88dl>`_
+`https://files.fm/linkj88dl/info <https://files.fm/linkj88dl/info>`_
+`https://booklog.jp/users/linkj88dl/profile <https://booklog.jp/users/linkj88dl/profile>`_
+`https://socialtrain.stage.lithium.com/t5/user/viewprofilepage/user-id/66438 <https://socialtrain.stage.lithium.com/t5/user/viewprofilepage/user-id/66438>`_
+`https://www.wpgmaps.com/forums/users/linkj88dl/ <https://www.wpgmaps.com/forums/users/linkj88dl/>`_
+`https://app.scholasticahq.com/scholars/292902-linkj88-dl <https://app.scholasticahq.com/scholars/292902-linkj88-dl>`_
+`https://stocktwits.com/linkj88dl <https://stocktwits.com/linkj88dl>`_
+`https://www.kooapp.com/profile/j88dl <https://www.kooapp.com/profile/j88dl>`_
+`https://linkj88dl.hashnode.dev/linkj88dl <https://linkj88dl.hashnode.dev/linkj88dl>`_
+`https://varecha.pravda.sk/profil/linkj88dl/o-mne/ <https://varecha.pravda.sk/profil/linkj88dl/o-mne/>`_
+`https://app.net/profile/linkj88dl <https://app.net/profile/linkj88dl>`_
+`https://app.roll20.net/users/13402185/linkj88dl <https://app.roll20.net/users/13402185/linkj88dl>`_
+`https://www.designspiration.com/linkj88dl/ <https://www.designspiration.com/linkj88dl/>`_
+`https://www.bricklink.com/aboutMe.asp?u=linkj88dl <https://www.bricklink.com/aboutMe.asp?u=linkj88dl>`_
+`https://os.mbed.com/users/linkj88dl/ <https://os.mbed.com/users/linkj88dl/>`_
+`https://www.webwiki.com/j88.supply <https://www.webwiki.com/j88.supply>`_
+`https://hypothes.is/users/linkj88dl <https://hypothes.is/users/linkj88dl>`_
+`https://influence.co/linkj88dl <https://influence.co/linkj88dl>`_
+`https://www.bandlab.com/linkj88dl <https://www.bandlab.com/linkj88dl>`_
+`https://tupalo.com/en/users/6808467 <https://tupalo.com/en/users/6808467>`_
+`https://developer.tobii.com/community-forums/members/linkj88dl/ <https://developer.tobii.com/community-forums/members/linkj88dl/>`_
+`https://pinshape.com/users/4499349-linkj88dl#designs-tab-open <https://pinshape.com/users/4499349-linkj88dl#designs-tab-open>`_
+`https://community.arlo.com/t5/user/viewprofilepage/user-id/970998 <https://community.arlo.com/t5/user/viewprofilepage/user-id/970998>`_
+`https://www.fitday.com/fitness/forums/members/linkj88dl.html <https://www.fitday.com/fitness/forums/members/linkj88dl.html>`_
+`https://www.renderosity.com/users/id:1503793 <https://www.renderosity.com/users/id:1503793>`_
+`https://www.speedrun.com/users/linkj88dl <https://www.speedrun.com/users/linkj88dl>`_
+`https://www.longisland.com/profile/linkj88dl <https://www.longisland.com/profile/linkj88dl>`_
+`https://photoclub.canadiangeographic.ca/profile/21276104 <https://photoclub.canadiangeographic.ca/profile/21276104>`_
+`https://pastelink.net/bxnln2ov <https://pastelink.net/bxnln2ov>`_
+`https://www.mountainproject.com/user/201834111/j88-dl <https://www.mountainproject.com/user/201834111/j88-dl>`_
+`https://linklist.bio/linkj88dl <https://linklist.bio/linkj88dl>`_
+`https://www.gta5-mods.com/users/linkj88dl <https://www.gta5-mods.com/users/linkj88dl>`_
+`https://allods.my.games/forum/index.php?page=User&userID=149907 <https://allods.my.games/forum/index.php?page=User&userID=149907>`_
+`https://www.divephotoguide.com/user/linkj88dl <https://www.divephotoguide.com/user/linkj88dl>`_
+`https://fileforum.com/profile/linkj88dl <https://fileforum.com/profile/linkj88dl>`_
+`https://scrapbox.io/linkj88dl/linkj88dl <https://scrapbox.io/linkj88dl/linkj88dl>`_
+`https://my.desktopnexus.com/linkj88dl/ <https://my.desktopnexus.com/linkj88dl/>`_
+`https://my.archdaily.com/us/@linkj88dl <https://my.archdaily.com/us/@linkj88dl>`_
+`https://experiment.com/users/linkj88dl <https://experiment.com/users/linkj88dl>`_
+`https://www.anobii.com/en/01e130646295f8b0bd/profile/activity <https://www.anobii.com/en/01e130646295f8b0bd/profile/activity>`_
+`https://blip.fm/linkj88dl <https://blip.fm/linkj88dl>`_
+`https://forums.alliedmods.net/member.php?u=372408 <https://forums.alliedmods.net/member.php?u=372408>`_
+`https://www.metooo.io/u/linkj88dl <https://www.metooo.io/u/linkj88dl>`_
+`https://ioby.org/users/viktorschumacher467844484 <https://ioby.org/users/viktorschumacher467844484>`_
+`https://vocal.media/authors/linkj88dl <https://vocal.media/authors/linkj88dl>`_
+`https://www.giveawayoftheday.com/forums/profile/191924 <https://www.giveawayoftheday.com/forums/profile/191924>`_
+`http://www.rohitab.com/discuss/user/2200451-linkj88dl/ <http://www.rohitab.com/discuss/user/2200451-linkj88dl/>`_
+`https://wperp.com/users/linkj88dl/ <https://wperp.com/users/linkj88dl/>`_
+`https://www.bitsdujour.com/profiles/PyCPbw <https://www.bitsdujour.com/profiles/PyCPbw>`_
+`https://notabug.org/linkj88dl <https://notabug.org/linkj88dl>`_
+`https://worldcosplay.net/member/1773125/club <https://worldcosplay.net/member/1773125/club>`_
+`https://linkj88dl.gallery.ru/ <https://linkj88dl.gallery.ru/>`_
+`https://git.qoto.org/linkj88dl <https://git.qoto.org/linkj88dl>`_
+`https://www.bigoven.com/user/j88dl <https://www.bigoven.com/user/j88dl>`_
+`http://hawkee.com/profile/7007504/ <http://hawkee.com/profile/7007504/>`_
+`https://promosimple.com/ps/2cb9c/j88dl <https://promosimple.com/ps/2cb9c/j88dl>`_
+`https://gitlab.aicrowd.com/viktor_schumacher <https://gitlab.aicrowd.com/viktor_schumacher>`_
+`https://allmy.bio/j88dl <https://allmy.bio/j88dl>`_
+`http://lode88buzz.crowdfundhq.com/users/j88dl <http://lode88buzz.crowdfundhq.com/users/j88dl>`_
+`https://www.fimfiction.net/user/749583/linkj88dl <https://www.fimfiction.net/user/749583/linkj88dl>`_
+`http://www.askmap.net/location/6928872/vi%E1%BB%87t-nam/j88dl <http://www.askmap.net/location/6928872/vi%E1%BB%87t-nam/j88dl>`_
+`https://doodleordie.com/profile/linkj88dl <https://doodleordie.com/profile/linkj88dl>`_
+`https://portfolium.com/linkj88dl <https://portfolium.com/linkj88dl>`_
+`https://www.dermandar.com/user/linkj88dl/ <https://www.dermandar.com/user/linkj88dl/>`_
+`https://www.chordie.com/forum/profile.php?id=1969341 <https://www.chordie.com/forum/profile.php?id=1969341>`_
+`https://qooh.me/linkj88dl <https://qooh.me/linkj88dl>`_
+`https://community.m5stack.com/user/j88dl <https://community.m5stack.com/user/j88dl>`_
+`https://newspicks.com/user/10333170 <https://newspicks.com/user/10333170>`_
+`https://allmyfaves.com/linkj88dl <https://allmyfaves.com/linkj88dl>`_
+`https://bikeindex.org/users/linkj88dl <https://bikeindex.org/users/linkj88dl>`_
+`https://www.facer.io/u/linkj88dl <https://www.facer.io/u/linkj88dl>`_
+`https://zumvu.com/linkj88dl/ <https://zumvu.com/linkj88dl/>`_
+`http://molbiol.ru/forums/index.php?showuser=1353343 <http://molbiol.ru/forums/index.php?showuser=1353343>`_
+`https://filmow.com/usuario/j88dl <https://filmow.com/usuario/j88dl>`_
+`https://tuvan.bestmua.vn/dwqa-question/j88dl <https://tuvan.bestmua.vn/dwqa-question/j88dl>`_
+`https://glose.com/u/linkj88dl <https://glose.com/u/linkj88dl>`_
+`https://www.dibiz.com/viktorschumacher467 <https://www.dibiz.com/viktorschumacher467>`_
+`https://able2know.org/user/linkj88dl/ <https://able2know.org/user/linkj88dl/>`_
+`https://inkbunny.net/linkj88dl <https://inkbunny.net/linkj88dl>`_
+`https://roomstyler.com/users/linkj88dl <https://roomstyler.com/users/linkj88dl>`_
+`https://www.balatarin.com/users/linkj88dl <https://www.balatarin.com/users/linkj88dl>`_
+`https://cloudim.copiny.com/question/details/id/842855 <https://cloudim.copiny.com/question/details/id/842855>`_
+`https://www.tripline.net/j88dl/ <https://www.tripline.net/j88dl/>`_
+`https://www.projectnoah.org/users/j88dl <https://www.projectnoah.org/users/j88dl>`_
+`https://community.stencyl.com/index.php?action=profile;u=1225057 <https://community.stencyl.com/index.php?action=profile;u=1225057>`_
+`https://www.bestadsontv.com/profile/469198/J88-dl <https://www.bestadsontv.com/profile/469198/J88-dl>`_
+`http://www.invelos.com/UserProfile.aspx?alias=linkj88dl <http://www.invelos.com/UserProfile.aspx?alias=linkj88dl>`_
+`http://www.travelful.net/location/5456949/vi%E1%BB%87t-nam/j88dl <http://www.travelful.net/location/5456949/vi%E1%BB%87t-nam/j88dl>`_
+`https://www.proarti.fr/account/linkj88dl <https://www.proarti.fr/account/linkj88dl>`_
+`https://ourairports.com/members/linkj88dl/ <https://ourairports.com/members/linkj88dl/>`_
+`https://www.babelcube.com/user/j88-dl-1 <https://www.babelcube.com/user/j88-dl-1>`_
+`https://topsitenet.com/profile/linkj88dl/1199695/ <https://topsitenet.com/profile/linkj88dl/1199695/>`_
+`https://www.checkli.com/linkj88dl <https://www.checkli.com/linkj88dl>`_
+`https://englishbaby.com/findfriends/gallery/detail/2506455 <https://englishbaby.com/findfriends/gallery/detail/2506455>`_
+`https://py.checkio.org/class/linkj88dl/ <https://py.checkio.org/class/linkj88dl/>`_
+`https://js.checkio.org/class/linkj88dl/ <https://js.checkio.org/class/linkj88dl/>`_
+`https://myapple.pl/users/450827-j88 <https://myapple.pl/users/450827-j88>`_
+`https://nhattao.com/members/user6537536.6537536/ <https://nhattao.com/members/user6537536.6537536/>`_
+`https://www.equinenow.com/farm/linkj88dl.htm <https://www.equinenow.com/farm/linkj88dl.htm>`_
+`https://sanjose.granicusideas.com/ideas/linkj88dl <https://sanjose.granicusideas.com/ideas/linkj88dl>`_
+`https://www.openhumans.org/member/linkj88dl/ <https://www.openhumans.org/member/linkj88dl/>`_
+`https://justpaste.it/u/linkj88dl <https://justpaste.it/u/linkj88dl>`_
+`https://demo.wowonder.com/linkj88dl <https://demo.wowonder.com/linkj88dl>`_
+`https://designaddict.com/community/profile/linkj88dl/ <https://designaddict.com/community/profile/linkj88dl/>`_
+`https://www.fz.se/medlem/348444 <https://www.fz.se/medlem/348444>`_
+`https://forum.trackandfieldnews.com/member/493653-linkj88dl <https://forum.trackandfieldnews.com/member/493653-linkj88dl>`_
+`https://lwccareers.lindsey.edu/profiles/4754046-j88-dl <https://lwccareers.lindsey.edu/profiles/4754046-j88-dl>`_
+`http://forum.yealink.com/forum/member.php?action=profile&uid=344115 <http://forum.yealink.com/forum/member.php?action=profile&uid=344115>`_
+`https://huzzaz.com/collection/linkj88dl <https://huzzaz.com/collection/linkj88dl>`_
+`http://www.video-bookmark.com/user/linkj88dl/ <http://www.video-bookmark.com/user/linkj88dl/>`_
+`https://nextion.tech/forums/users/linkj88dl/ <https://nextion.tech/forums/users/linkj88dl/>`_
+`https://hanson.net/users/linkj88dl <https://hanson.net/users/linkj88dl>`_
+`https://pairup.makers.tech/en/linkj88dl <https://pairup.makers.tech/en/linkj88dl>`_
+`https://www.bunity.com/-8fcdb65d-90b5-46b1-81f0-16f800a68dfe?r= <https://www.bunity.com/-8fcdb65d-90b5-46b1-81f0-16f800a68dfe?r=>`_
+`https://kitsu.io/users/1493941 <https://kitsu.io/users/1493941>`_
+`https://www.funddreamer.com/users/linkj88dl <https://www.funddreamer.com/users/linkj88dl>`_
+`https://www.11secondclub.com/users/profile/1588216 <https://www.11secondclub.com/users/profile/1588216>`_
+`https://1businessworld.com/pro/linkj88dl/ <https://1businessworld.com/pro/linkj88dl/>`_
+`https://www.clickasnap.com/profile/linkj88dl <https://www.clickasnap.com/profile/linkj88dl>`_
+`https://www.racingjunk.com/forums/member.php?u=99399 <https://www.racingjunk.com/forums/member.php?u=99399>`_
+`https://muare.vn/shop/linkj88dl/823824 <https://muare.vn/shop/linkj88dl/823824>`_
